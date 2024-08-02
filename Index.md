@@ -1,6 +1,6 @@
 
 Last Presentation
-Claudio Iturra, 2025.
+Claudio Iturra, 2024.
 
 https://docs.google.com/presentation/d/18xpa6x-fYmxWyO-2ZPrPijw1SyuOnsN33rRR6w76KWE/edit?usp=sharing
 
